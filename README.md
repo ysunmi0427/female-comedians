@@ -30,8 +30,18 @@
 | 해나 개즈비 (Hannah Gadsby) | Interview | Podcast | [Conan O'Brien Needs A Friend ep29. Hannah Gadsby](https://podcasts.apple.com/us/podcast/29-hannah-gadsby/id1438054347?i=1000440419920) | 영 | 무 |
 | 해나 개즈비 (Hannah Gadsby) | Stand-up Comedy | Youtube | ["The Good Men" & Misogyny](https://www.youtube.com/watch?v=OEPsqFLhHBc) | 영 | 무 |
 | 완다 사이크스 (Wanda Sykes) | Stand-up Comedy | Netflix | 정상이 아니야 | 영 | 유 |
+| 완다 사이크스 (Wanda Sykes) | Stand-up Comedy | Youtube | [Being gay is harder than being black](https://www.youtube.com/watch?v=xn-4CU6ifo8) | 영 | 무 |
+| 완다 사이크스 (Wanda Sykes) | Stand-up Comedy | Youtube | [Wanda Sykes! Stand Up Comedy Special 2016](https://www.youtube.com/watch?v=0_1GZDknW6Y) | 영 | 무 |
+| 완다 사이크스 (Wanda Sykes) | Interview | Youtube | [The Ellen Show, Wanda Sykes Shares Her Last-Minute Oscar Voting Strategy](https://www.youtube.com/watch?v=P9NmAmt_G8w) | 영 | 무 |
+| 완다 사이크스 (Wanda Sykes) | Speech | Youtube | [Wanda Sykes at the 2009 White House Correspondents' Dinner](https://www.youtube.com/watch?v=zmyRog2w4DI) | 영 | 무 |
+| 완다 사이크스 (Wanda Sykes) | Interview | Youtube | [The Ellen Show, Wanda Sykes Goes Skiing](https://www.youtube.com/watch?v=Zw_aTuy8kMw) | 영 | 무 |
 | 젠 커크맨 (Jen Kirkman) | Stand-up Comedy | Netflix | 난 솔로로 죽을거야 | 영 | 유 |
 | 티파니 해디시, 앨리 웡 | Animated sitcom | Netflix | 투카 앤 버티 | 영 | 유 |
 | 티파니 해디시 (Tiffany Haddish) | Interview | Netflix | 오늘의 게스트, 알 만한 사람은 다 아는: 데이비드 레터맨 쇼, 티파니 해디시 편 | 영 | 유 |
 | 엘런 디제너러스 (Ellen Degeneres) | Stand-up Comedy | Netflix | 공감 능력자 | 영 | 유 |
 | 엘런 디제너러스 (Ellen Degeneres) | Interview | Netflix | 오늘의 게스트, 알 만한 사람은 다 아는: 데이비드 레터맨 쇼, 엘런 디제너러스 편 | 영 | 유 |
+
+## 컨트리뷰터의 코멘트
+* `sunmi` 엘런쇼(The Ellen Show)에 나오는 완다 사이크스는 다 볼만한 가치가 있어요. 하도 많아서 링크를 다 걸지 않았지만, 전부 재밌습니다.
+* `sunmi` 해가 다르게 핫하게 떠오르는 앨리웡을 주목합시다.
+* `sunmi` 한국에도 여성 스탠드업 코미디언이 더 많아졌으면 좋겠습니다. 셀럽맷부터 응원합니다!
