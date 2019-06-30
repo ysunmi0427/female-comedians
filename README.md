@@ -11,6 +11,7 @@
 | 송은이, 김숙 | Comedy | Podcast, Youtube | [송은이 김숙의 비밀보장](https://www.youtube.com/watch?v=itIpu9P6KWU) | 한 | - |
 | 송은이, 김신영, 안영미, 신봉선 | K-pop | Youtube | [비보티비 VIVO TV 판벌려 시즌2](https://www.youtube.com/watch?v=2iNnEYFScqs) | 한 | - |
 | 박나래 | Street Comedy | Youtube | [섹드립이 난무하는 19금 나래바](https://www.youtube.com/watch?v=bqHXNE80DsI) | 한 | - |
+| 이영자 | v-log | Youtube | [이영자 채널 :LYJ CH.](https://www.youtube.com/watch?v=I27ImljwWYs) | 한 | - |
 | 김영희 | Stand-up Comedy | Youtube | [아줌마 팬이 좋은 이유](https://www.youtube.com/watch?v=wmJU7tgYyik) | 한 | - |
 | 미사장 | Youtube Live Clips | Youtube | [스트리밍 하이라이트 ⟨니 인생을 살으쑈⟩](https://www.youtube.com/watch?v=AolsI70Z-D4&list=PL8-yVl8YXzaFbGIMY6xBewZnO2XGYqBdf) | 한 | - |
 | 셀럽맷 | Comedy and Interview | Podcast | [영혼의 노숙자](https://podcasts.apple.com/kr/podcast/%EC%98%81%ED%98%BC%EC%9D%98-%EB%85%B8%EC%88%99%EC%9E%90/id1271031489) | 한 | - |
