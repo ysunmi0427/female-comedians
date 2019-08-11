@@ -40,8 +40,10 @@
 | 티파니 해디시 (Tiffany Haddish) | Interview | Netflix | 오늘의 게스트, 알 만한 사람은 다 아는: 데이비드 레터맨 쇼, 티파니 해디시 편 | 영 | 유 |
 | 엘런 디제너러스 (Ellen Degeneres) | Stand-up Comedy | Netflix | 공감 능력자 | 영 | 유 |
 | 엘런 디제너러스 (Ellen Degeneres) | Interview | Netflix | 오늘의 게스트, 알 만한 사람은 다 아는: 데이비드 레터맨 쇼, 엘런 디제너러스 편 | 영 | 유 |
+| 강유미 | Comedy & v-log | Youtube | [강유미의 좋아서 하는 채널](https://www.youtube.com/watch?v=HWQua3Z1QuU&t=9s) | 한 | - |
 
 ## 컨트리뷰터의 코멘트
 * `sunmi` 엘런쇼(The Ellen Show)에 나오는 완다 사이크스는 다 볼만한 가치가 있어요. 하도 많아서 링크를 다 걸지 않았지만, 전부 재밌습니다.
 * `sunmi` 해가 다르게 핫하게 떠오르는 앨리웡을 주목합시다.
 * `sunmi` 한국에도 여성 스탠드업 코미디언이 더 많아졌으면 좋겠습니다. 셀럽맷부터 응원합니다!
+* `dahae(mia)` 한국 대표 여성 코미디언중의 한 명인 강유미님의 채널입니다. 개그콘서트 사랑의 카운슬러때부터 남다른 센스를 보여 주셨는데 유투브 채널도 정말 재미있어서 추천드립니다. 한국 여성 코미디언 화이팅!
